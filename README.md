@@ -1,4 +1,4 @@
-### Hi there 👋
+### 📚 立修齐志，读圣贤书
 
 <!--
 **ajiegao/ajiegao** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
